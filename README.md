@@ -1,0 +1,1 @@
+firüs çalışırsa boku yedin
